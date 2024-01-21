@@ -1,1 +1,1 @@
-I made this program just for fu
+I made this program just for fun :))
